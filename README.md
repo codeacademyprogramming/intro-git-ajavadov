@@ -3,3 +3,5 @@
 Burda sizin reklaminiz ola biler
 
 NESE YAZDIM
+
+deyishiklik
